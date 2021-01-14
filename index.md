@@ -1,4 +1,3 @@
-## KK's Github Page
-
+## [KK's](https://www.cnblogs.com/lky-19990802/) Blog
 
 这个人很懒什么都没有留下...
